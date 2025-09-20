@@ -1,1 +1,1 @@
-https://github.com/jamal002/housnite.git
+https://zapier.com/editor/320656614/draft/320656615/sample
